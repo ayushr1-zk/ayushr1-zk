@@ -1,1 +1,2 @@
-### Hi there 👋 : Main account :- https://github.com/ayushr1
+### Hi there 👋 : 
+My main account :- https://github.com/ayushr1
